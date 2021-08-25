@@ -1,2 +1,0 @@
-# necojimaloveteam
-ねこじまのホームページ
